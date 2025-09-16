@@ -1,1 +1,0 @@
-# normalModelo1.1mcwa8l
